@@ -1,4 +1,4 @@
-A story and descriptions etc for World of Akia
+texts for story and description etc for World of Akia
 
 this is so friggin hard
 
